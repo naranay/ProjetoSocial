@@ -1,3 +1,5 @@
+![image](https://user-images.githubusercontent.com/111026785/236568567-623dfe32-3f1f-4d5e-8c31-e808facc3846.png)
+
 # 💚 Revitalização e paisagismo na rua: São Jose do Ribamar - São Paulo
 
 ## 🌪️ Desafio
